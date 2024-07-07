@@ -1,4 +1,4 @@
-## Hello, I'm Yuki!👋
+## Hello, this is about me👋
 
 ## skills
 
